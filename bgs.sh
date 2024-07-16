@@ -4,4 +4,6 @@ Bandari
 
 --> Gangaram and Bhudevi
 
---> Narahari , Ramesh , Shashirekha
+--> Shashirekha and Prakash
+
+--> Manik
