@@ -2,6 +2,8 @@ Bandari
 
 --> Venkataiah and Lasmavva
 
---> Narayana and Devavva
+--> Gangaram and Bhudavva
 
---> Gangadhari , Hari , Upi , Jyothi
+--> Ramesh and Lalitha
+
+--> Goutham , SaiTeja
