@@ -2,4 +2,6 @@ Bandari
 
 --> Venkataiah and Lasmavva
 
---> Gangaram , Narayana , Dharmapuri , Laxmi , Kalavva , Gangavva
+--> Gangaram and Bhudevi
+
+--> Narahari , Ramesh , Shashirekha
